@@ -20,4 +20,4 @@
 总的来说，免费观看日本AV并非难事，关键在于识别可靠资源平台、保护个人隐私，并学会理性筛选内容来源。只要遵循安全指引，用户就能在不花一分钱的情况下，享受高质量的日本AV观影体验。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ff00269/22100 ）</span>
